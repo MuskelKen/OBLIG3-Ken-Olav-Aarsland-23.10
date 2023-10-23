@@ -5,3 +5,7 @@ https://assets.goal.com/v3/assets/bltcc7a7ffd2fbf71f5/bltc49bf9b5c7d675ea/62f628
 
 Første bilde med sko
 https://www.soccerbible.com/media/148267/haaland-8-min.jpg
+
+
+Kode kilder
+https://cssgradient.io
